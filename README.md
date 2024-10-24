@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computers and Hiking
 - 🌱 I’m currently learning Engineering
 - 💞️ I’m looking to collaborate on nothing yet
-- 📫 How to reach me email me at linde.seamn@gmail.com I guess
+- 📫 How to reach me email me at linden.seamn@gmail.com I guess
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: 
 
